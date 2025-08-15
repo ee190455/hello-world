@@ -8,3 +8,4 @@ when i got to work. there was no spicy tenders in the walk-in, nor thawing. all 
 wiki | youtube | pentest | code | write | organize | sort | learn | rest | consume | slow down | mirror | shadow | whoami | pwd | admin | owner | user | ₿ | ฿
 1999 Nissian Pathfinder 4D
 Forgot my ID and no lights
+Cleaned again & feels like i am going nowhere
