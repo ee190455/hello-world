@@ -10,3 +10,4 @@ wiki | youtube | pentest | code | write | organize | sort | learn | rest | consu
 Forgot my ID and no lights
 Cleaned again & feels like i am going nowhere
 13870 4 colors
+5 because the default color
