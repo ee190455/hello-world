@@ -9,3 +9,4 @@ wiki | youtube | pentest | code | write | organize | sort | learn | rest | consu
 1999 Nissian Pathfinder 4D
 Forgot my ID and no lights. Cleaned again & feels like i am going nowhere
 13870 4 colors or 5 because the default color | 2ND edit next is 3RD. crissy is divine. follower of christ
+What is success?
