@@ -12,3 +12,4 @@ What is success? Money? Physical Emotional Mental Financially Self-Sufficient (b
 Superchips®, Inc. Vehicle Programming Instructions 30.003543, -95.466497 (30°00'12.8"N 95°27'59.4"W) 
 inertia
 science w/ magnets
+vibration
