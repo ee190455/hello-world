@@ -13,3 +13,4 @@ Superchips®, Inc. Vehicle Programming Instructions 30.003543, -95.466497 (30°0
 inertia
 science w/ magnets
 vibration
+energy & light
