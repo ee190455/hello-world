@@ -14,3 +14,4 @@ inertia
 science w/ magnets
 vibration
 energy & light
+camera
