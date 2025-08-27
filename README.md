@@ -16,3 +16,4 @@ vibration
 energy & light
 camera
 time flys
+fast
