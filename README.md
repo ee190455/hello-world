@@ -9,11 +9,4 @@ wiki | youtube | pentest | code | write | organize | sort | learn | rest | consu
 1999 Nissian Pathfinder 4D. Forgot my ID and no lights. Cleaned again & feels like i am going nowhere
 13870 4 colors or 5 because the default color | 2ND edit next is 3RD. crissy is divine. follower of christ
 What is success? Money? Physical Emotional Mental Financially Self-Sufficient (brand name:Farmapram, xanax, alphazolam, benzodiazepine, klonopin, clonazepam, ativan, lorazepam, valium, diazepam) ifa celtics™
-Superchips®, Inc. Vehicle Programming Instructions 30.003543, -95.466497 (30°00'12.8"N 95°27'59.4"W) 
-inertia
-science w/ magnets
-vibration
-energy & light
-camera
-time flys
-fast
+Superchips®, Inc. Vehicle Programming Instructions 30.003543, -95.466497 (30°00'12.8"N 95°27'59.4"W) (inertia/science w/ magnets/vibration/energy & light/camera/time flys/fast)
