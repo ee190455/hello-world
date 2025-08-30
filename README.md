@@ -10,5 +10,4 @@ wiki | youtube | pentest | code | write | organize | sort | learn | rest | consu
 What is success? Money? Physical Emotional Mental Financially Self-Sufficient (brand name:Farmapram, xanax, alphazolam, benzodiazepine, klonopin, clonazepam, ativan, lorazepam, valium, diazepam) ifa celtics™
 Superchips®, Inc. Vehicle Programming Instructions 30.003543, -95.466497 (30°00'12.8"N 95°27'59.4"W) (inertia/science w/ magnets/vibration/energy & light/camera/time flys/fast)
 Should Would Which Direction Location Envirorment Situation Decesion Position Relative Space Time Speed Zone Dimension World Gravity Ground Anti
-.!?...*+/|\,@#$%^&()-_=+[]{};:'",.<>`~
-Four hoy. 321
+.!?...*+/|\,@#$%^&()-_=+[]{};:'",.<>`~ 13
