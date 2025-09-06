@@ -10,3 +10,4 @@ wiki | youtube | pentest | code | write | organize | sort | learn | rest | consu
 should and would could. now that spelling looks wrong CLEAN
 row v colums  
 i need to write my wiki
+no/NO
