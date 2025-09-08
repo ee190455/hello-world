@@ -11,6 +11,4 @@ should and would could. now that spelling looks wrong CLEAN
 row v colums  
 i need to write my wiki
 no/NO
-4
-3
-2
+bad people win good people lose
