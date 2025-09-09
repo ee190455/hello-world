@@ -13,3 +13,4 @@ i need to write my wiki
 no/NO
 bad people win good people lose
 110%
+i am struggling
