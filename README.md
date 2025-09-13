@@ -16,3 +16,4 @@ bad people win good people lose
 i am struggling
 it is 3:16PM. i am going to work
 Github Android (auth)
+Public and private
