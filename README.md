@@ -8,3 +8,4 @@ when i got to work. there was no spicy tenders in the walk-in, nor thawing. all 
 the four/4 chris kurt or i and winston 50 33 37 38 26 44. back on that droid 2 hubs. consistency
 10zero reverse twice double two too to 2 II ii ll dos
 A woman named Jackie in the apartment across from her wanted help moving and now the date would be the 27th saturday i suppose noon. 7 minutes off from what i consider noon. reschedule to next saturday to west parker rd:)
+iamfree
