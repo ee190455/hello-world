@@ -8,3 +8,4 @@ when i got to work. there was no spicy tenders in the walk-in, nor thawing. all 
 A woman named Jackie in the apartment across from her wanted help moving and now the date would be the 27th saturday i suppose noon. 7 minutes off from what i consider noon. reschedule to next saturday to west parker rd:)
 iamfree
 okay lets go
+hvac tour @uti
