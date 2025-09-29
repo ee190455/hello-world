@@ -14,3 +14,4 @@ talking to david and will call me back
 will talk on phone with others not me
 school came to a hault
 on phone doing it
+has a problem wasting time
