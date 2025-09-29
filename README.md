@@ -13,3 +13,4 @@ does not say i love you back especially in front of plp
 talking to david and will call me back
 will talk on phone with others not me
 school came to a hault
+on phone doing it
