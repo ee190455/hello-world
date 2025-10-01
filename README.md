@@ -10,3 +10,4 @@ iamfree/okay lets go/hvac tour @uti/routine. magic. momentum. consistency/persis
 1/does not say i love you back especially in front of plp\talking to david and will call me back\will talk on phone with others not me/school came to a hault/on phone doing it/has a problem wasting time
 b2b
 p2p 
+what if i did everything not to go to school?
