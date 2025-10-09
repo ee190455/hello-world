@@ -11,8 +11,7 @@ iamfree/okay lets go/hvac tour @uti/routine. magic. momentum. consistency/persis
 b2b
 p2p 
 what if i did everything not to go to school?
-1
-two
+1 two
 my heart hurts
 never back down
 abc just keep showing up and doing the reps a15 at&t
