@@ -15,6 +15,5 @@ what if i did everything not to go to school?
 two
 my heart hurts
 never back down
-abc
-just keep showing up and doing the reps
+abc just keep showing up and doing the reps
 a15 at&t
