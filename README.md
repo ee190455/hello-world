@@ -8,8 +8,7 @@ when i got to work. there was no spicy tenders in the walk-in, nor thawing. all 
 A woman named Jackie in the apartment across from her wanted help moving and now the date would be the 27th saturday i suppose noon. 7 minutes off from what i consider noon. reschedule to next saturday to west parker rd:)
 iamfree/okay lets go/hvac tour @uti/routine. magic. momentum. consistency/persistence. truth  
 1/does not say i love you back especially in front of plp\talking to david and will call me back\will talk on phone with others not me/school came to a hault/on phone doing it/has a problem wasting time
-b2b
-p2p 
+b2b p2p 
 what if i did everything not to go to school?
 1 two
 my heart hurts
