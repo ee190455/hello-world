@@ -15,3 +15,4 @@ she has a twitter or is on x and back 2 fb. sadly snap is no bueno. insta good
 good things go
 losing it
 beat it
+job
