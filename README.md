@@ -17,3 +17,4 @@ losing it
 beat it
 job
 crissi bby delete just this line💌
+not being consistent can guarentee that you will not make it
