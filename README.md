@@ -21,3 +21,4 @@ not being consistent can guarentee that you will not make it
 qt
 cp fuking s
 cu
+type
