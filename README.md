@@ -22,3 +22,4 @@ qt
 cp fuking s
 cu
 type
+halloween
