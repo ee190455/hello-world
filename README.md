@@ -25,3 +25,4 @@ type
 halloween
 42 skyflower OMG
 perc
+$1
