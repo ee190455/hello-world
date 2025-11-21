@@ -42,3 +42,4 @@ on  myself
 evrryddsy
 not tht day, that went fast
 she said they going to pull up for 120
+pull up
