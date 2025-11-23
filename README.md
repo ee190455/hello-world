@@ -9,38 +9,12 @@ A woman named Jackie in the apartment across from her wanted help moving and now
 iamfree/okay lets go/hvac tour @uti/routine. magic. momentum. consistency/persistence. truth  
 1/does not say i love you back especially in front of plp\talking to david and will call me back\will talk on phone with others not me/school came to a hault/on phone doing it/has a problem wasting time
 b2b p2p  what if i did everything not to go to school? 1 two my heart hurts never back down abc just keep showing up and doing the reps a15 at&t
-purpose
-111 carl is mad
-she has a twitter or is on x and back 2 fb. sadly snap is no bueno. insta good
-good things go
-losing it
-beat it
+purpose/111 carl is mad/she has a twitter or is on x and back 2 fb. sadly snap is no bueno. insta good
+good things go/losing it/beat it
 job
-crissi bby delete just this line💌
-not being consistent can guarentee that you will not make it
-qt
-cp fuking s
-cu
-type
-halloween
-42 skyflower OMG
-perc
-$1
-the interview but real life
+crissi bby delete just this line💌/not being consistent can guarentee that you will not make it/qt/cp fuking s/cu/type/halloween/42 skyflower OMG/perc/$1/the interview but real life
 ////
 \\//
-fear
-win
-linkin park<3
-flickering
-ilycrissy
-mydadwasnicetodaysofar@least
-he made it one whole day
-i made a mistake
+fear/win/linkin park<3/flickering/ilycrissy/mydadwasnicetodaysofar@least/he made it one whole day/i made a mistake
 WORKING...................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................................
-on  myself
-evrryddsy
-not tht day, that went fast
-she said they going to pull up for 120
-pull up
-//:THEAMATEUR/
+on  myself/evrryddsy/not tht day, that went fast/she said they going to pull up for 120\\\\pull up///:THEAMATEUR/
