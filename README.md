@@ -21,3 +21,4 @@ on  myself/evrryddsy/not tht day, that went fast/she said they going to pull up 
 it is crazy to know i was up all of the 27th and did not manage to get green or anything i just flat out miss the last 24hrs as i can almost guareentee i did something here
 knowing a day can go that fast is actually scary and makes me feel finite
 so you know that i know that you know
+she told me hbd b4 everyone else
