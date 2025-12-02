@@ -22,3 +22,4 @@ it is crazy to know i was up all of the 27th and did not manage to get green or 
 knowing a day can go that fast is actually scary and makes me feel finite
 so you know that i know that you know
 she told me hbd b4 everyone else
+i gt my dd bag
