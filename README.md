@@ -25,3 +25,4 @@ she told me hbd b4 everyone else
 i gt my dd bag
 godspeed
 crissy said carl put his hand on her😡👿
+it is reading me
