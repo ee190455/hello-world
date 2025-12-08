@@ -28,3 +28,4 @@ crissy said carl put his hand on her😡👿
 it is reading me
 too much info fyi ps lyk ik ikr
 time
+rule no. 1 shut the fuck up
