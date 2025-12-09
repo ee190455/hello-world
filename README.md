@@ -29,3 +29,4 @@ it is reading me
 too much info fyi ps lyk ik ikr
 time
 rule no. 1 shut the fuck up
+you know i do not think anyone looks with a flashlight in my vehicle like that unless they have further thoughts of stealing or... ...
