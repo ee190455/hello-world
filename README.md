@@ -39,3 +39,4 @@ bruhhhh whoville size bigger<.>
 she on my mind
 dtfna afk brb lmfao lmao fck nvm l8 yolo bolo rt lft dwn h8 f8 r8 b8 d8 w8 t8y8 i8 p8 k8 c8 n8 m8 omw otw wtf lol N/a N/A N\A n\a () [] {} <>
 git on it with ios git authorization boi
+through it throughly  
