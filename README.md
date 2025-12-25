@@ -43,3 +43,6 @@ through it throughly
 so if i ever miss more than like four or five days without mentioning it. the cops............................
 i am the exception
 eve
+to the neighbor i just lashed out at.
+i truly am sorry
+i will slow down
