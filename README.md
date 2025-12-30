@@ -48,3 +48,4 @@ i truly am sorry
 i will slow down
 we need a tool
 4 open/close 365 protocol      
+grace faith belief hope
