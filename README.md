@@ -24,3 +24,4 @@ dtfna afk brb lmfao lmao fck nvm l8 yolo bolo rt lft dwn h8 f8 r8 b8 d8 w8 t8y8 
 git on it with ios git authorization boi/through it throughly/so if i ever miss more than like four or five days without mentioning it. the cops............................
 i am the exception/eve/to the neighbor i just lashed out at/i truly am sorry/i will slow down/we need a tool/4 open/close 365 protocol/grace faith belief hope/2 infinity & BEYOND
 oh ending the             year  with being sued
+luck
