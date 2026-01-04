@@ -25,3 +25,4 @@ git on it with ios git authorization boi/through it throughly/so if i ever miss 
 i am the exception/eve/to the neighbor i just lashed out at/i truly am sorry/i will slow down/we need a tool/4 open/close 365 protocol/grace faith belief hope/2 infinity & BEYOND
 oh ending the             year  with being sued
 luck
+dd
