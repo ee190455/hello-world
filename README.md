@@ -26,3 +26,4 @@ i am the exception/eve/to the neighbor i just lashed out at/i truly am sorry/i w
 oh ending the             year  with being sued
 luck
 dd
+not going to lie, i should go read this and maybe delete but sometimes time times up
