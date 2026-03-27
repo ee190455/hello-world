@@ -27,3 +27,4 @@ oh ending the             year  with being sued
 luck
 dd
 not going to lie, i should go read this and maybe delete but sometimes time times up
+its a lot of information
